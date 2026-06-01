@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nitish Kumar Chauhan.
-- 📫 How to reach me: email:nc6211@vidyagyan.in
+- 📫 How to reach me: email: nc6211@vidyagyan.in or nitishkumarc613@gmail.com
 - 🙏👋 Welcome to my Dashboard!
 
 <!---
